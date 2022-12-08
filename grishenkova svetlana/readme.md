@@ -1,2 +1,0 @@
-# grishenkova svetlana
-### homework

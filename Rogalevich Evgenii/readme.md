@@ -1,3 +1,0 @@
-# Rogalevich Evgeniy
-
-### Homework

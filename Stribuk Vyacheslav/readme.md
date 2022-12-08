@@ -1,2 +1,0 @@
-# Stribuk Vyacheslav
-### homework

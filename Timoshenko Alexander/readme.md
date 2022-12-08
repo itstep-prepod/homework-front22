@@ -1,2 +1,0 @@
-# Timoshenko Alexander
-### homework

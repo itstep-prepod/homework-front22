@@ -1,3 +1,0 @@
-# Shapovalov Vlad
-
-### homework
